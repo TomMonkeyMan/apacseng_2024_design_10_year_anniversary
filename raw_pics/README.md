@@ -11,45 +11,43 @@ The designs selected through voting will be rendered in high definition using th
 No.1 This is my personal favorite, so i put it to No.1
 
 <img src="/raw_pics/pics/001.jpg?raw=true" width="512" />
-
-
-
-
+ 
+ 
 No.2 
 
 <img src="/raw_pics/pics/002.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.3
 
 <img src="/raw_pics/pics/003.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.4 panda with Minions
 
 <img src="/raw_pics/pics/004.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.5 Some of our old style last year, I love old styles.
 
 <img src="/raw_pics/pics/005.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.6
 
 <img src="/raw_pics/pics/006.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.7
 
 <img src="/raw_pics/pics/007.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.8
 
 <img src="/raw_pics/pics/008.jpg?raw=true" width="512" />
-
-
+ 
+ 
 No.9 OK... I put Elon here for your options...
 
 <img src="/raw_pics/pics/009.jpg?raw=true" width="512" />
