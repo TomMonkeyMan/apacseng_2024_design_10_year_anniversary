@@ -68,7 +68,7 @@ No.12
 <img src="/raw_pics/pics/012.jpg?raw=true" width="512" />
 <br><br>
 
-No.13 Dragon Ball style, for Akira Toriyama 鳥山明, RIP.
+No.13 Dragon Ball style, for Akira Toriyama 鳥山明, RIP. vote for this if it's also your chidhood.
 
 <img src="/raw_pics/pics/013.jpg?raw=true" width="512" />
 <br><br>
