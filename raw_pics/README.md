@@ -73,7 +73,7 @@ No.13 Dragon Ball style, for Akira Toriyama 鳥山明, RIP.
 <img src="/raw_pics/pics/013.jpg?raw=true" width="512" />
 <br><br>
 
-No.14 Here're some options for your cute daughters, little girls' vote matter!
+No.14 Here're some options for your cute daughters, little girls' votes matter!
 
 <img src="/raw_pics/pics/014.jpg?raw=true" width="512" />
 <br><br>
