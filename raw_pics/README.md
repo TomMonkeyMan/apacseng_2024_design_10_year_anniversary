@@ -12,106 +12,131 @@ No.1 This is my personal favorite, so i put it to No.1
 
 <img src="/raw_pics/pics/001.jpg?raw=true" width="512" />
 
+
 No.2 
 
 <img src="/raw_pics/pics/002.jpg?raw=true" width="512" />
+
 
 No.3
 
 <img src="/raw_pics/pics/003.jpg?raw=true" width="512" />
 
+
 No.4 panda with Minions
 
 <img src="/raw_pics/pics/004.jpg?raw=true" width="512" />
 
-No.5 
+
+No.5 Some of our old style last year, I love old styles.
 
 <img src="/raw_pics/pics/005.jpg?raw=true" width="512" />
+
 
 No.6
 
 <img src="/raw_pics/pics/006.jpg?raw=true" width="512" />
 
+
 No.7
 
 <img src="/raw_pics/pics/007.jpg?raw=true" width="512" />
+
 
 No.8
 
 <img src="/raw_pics/pics/008.jpg?raw=true" width="512" />
 
-No.9
+
+No.9 OK... I put Elon here for your options...
 
 <img src="/raw_pics/pics/009.jpg?raw=true" width="512" />
+
 
 No.10
 
 <img src="/raw_pics/pics/010.jpg?raw=true" width="512" />
 
-No.11
+
+No.11 Only Minions
 
 <img src="/raw_pics/pics/011.jpg?raw=true" width="512" />
 
-No.12
+
+No.12 
 
 <img src="/raw_pics/pics/012.jpg?raw=true" width="512" />
 
-No.13
+
+No.13 Dragon Ball style, for Akira Toriyama 鳥山明, RIP.
 
 <img src="/raw_pics/pics/013.jpg?raw=true" width="512" />
 
-No.14
+
+No.14 Here're some options for your cute daughters, little girls' vote matter!
 
 <img src="/raw_pics/pics/014.jpg?raw=true" width="512" />
 
-No.15
+
+No.15 FYD (for your daughter)
 
 <img src="/raw_pics/pics/015.jpg?raw=true" width="512" />
+
 
 No.16
 
 <img src="/raw_pics/pics/016.jpg?raw=true" width="512" />
 
-No.17
+
+No.17 The design elements are quite strong
 
 <img src="/raw_pics/pics/017.jpg?raw=true" width="512" />
+
+
+
+### Badge Design Alternatives
 
 No.18
 
 <img src="/raw_pics/pics/018.jpg?raw=true" width="512" />
 
+
 No.19
 
 <img src="/raw_pics/pics/019.jpg?raw=true" width="512" />
+
 
 No.20
 
 <img src="/raw_pics/pics/020.jpg?raw=true" width="512" />
 
+
 No.21
 
 <img src="/raw_pics/pics/021.jpg?raw=true" width="512" />
+
 
 No.22
 
 <img src="/raw_pics/pics/022.jpg?raw=true" width="512" />
 
+
 No.23
 
 <img src="/raw_pics/pics/023.jpg?raw=true" width="512" />
+
 
 No.24
 
 <img src="/raw_pics/pics/024.jpg?raw=true" width="512" />
 
-No.25
+
+No.25 Men's choice
 
 <img src="/raw_pics/pics/025.jpg?raw=true" width="512" />
+
 
 No.26
 
 <img src="/raw_pics/pics/026.jpg?raw=true" width="512" />
 
-No.27
-
-<img src="/raw_pics/pics/027.jpg?raw=true" width="512" />
