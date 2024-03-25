@@ -11,7 +11,7 @@ The designs selected through voting will be rendered in high definition using th
 No.1 This is my personal favorite, so i put it to No.1
 
 <img src="/raw_pics/pics/001.jpg?raw=true" width="512" />
- 
+<br><br> 
  
 No.2 
 
